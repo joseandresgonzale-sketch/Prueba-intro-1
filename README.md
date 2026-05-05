@@ -8,3 +8,5 @@ Actualmente, estoy cursando la carrera de Ingeniería en Sistemas en la Universi
 Mi sueño es convertirme en un programador profesional y poder trabajar con una empresa importante en el desarrollo de aplicaciones o páginas web desde mi país de origen, Guatemala. 🇬🇹
 
 A través de mi trabajo, me gustaría poder viajar por el mundo y conocer diferentes lugares y culturas. 🌎✈️
+
+Jose Gonzales - 26624

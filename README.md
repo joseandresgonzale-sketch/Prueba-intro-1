@@ -10,3 +10,7 @@ Mi sueño es convertirme en un programador profesional y poder trabajar con una 
 A través de mi trabajo, me gustaría poder viajar por el mundo y conocer diferentes lugares y culturas. 🌎✈️
 
 Jose Gonzales - 26624
+
+
+Gabriel Alexander 26949
+Estuvo interesante, animo y suerte primo vo podes.
